@@ -27,9 +27,6 @@
 
 ---
 
-### 🌎 Let's Connect!  
-💼 **LinkedIn:** https://www.linkedin.com/in/nishan-kakadiya
-
 🤝 **Let's build something amazing together!** 🚀  
 
 ---
